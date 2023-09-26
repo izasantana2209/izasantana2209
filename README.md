@@ -6,3 +6,8 @@ Meu nome é ezabelly
 - Sou namorada do Allan😻
 - vou fazer faculdade de direito penal quando terminar o ensino médio⚖️
 
+  ### Entre em contato comigo
+
+  📫ezabelly.santana@escola.pr.gov.br
+
+  ![](https://media.tenor.com/fVqCwRYHLx0AAAAC/deboche-risada.gif)
