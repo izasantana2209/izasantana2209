@@ -10,4 +10,4 @@ Meu nome é ezabelly
 
   📫ezabelly.santana@escola.pr.gov.br
 
-  ![](https://media.tenor.com/fVqCwRYHLx0AAAAC/deboche-risada.gif)
+  ![](https://media.tenor.com/nR9iDKkkHvMAAAAC/deboche.gif)
